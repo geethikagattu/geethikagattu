@@ -38,7 +38,6 @@ Helping people find their path while building mine has always been something I'm
 - I can spend hours debugging and still call it fun.
 - Food instantly improves my mood.
 - My best ideas usually arrive at the worst possible times.
-- I enjoy helping students with career guidance.
 - I start projects for learning and end up becoming obsessed with them.
 
 ## Current Goals
